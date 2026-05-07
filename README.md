@@ -9,12 +9,19 @@
 
 ` c+h freely!! i may be offtab sometimes(~‾▿‾)~.. hehe.. `
 
+` i would love to be ur friend/bff>:3!! `
+
+` online at discord 24/7:D,cuz i luv chatting
+ and calls!! `
+
 ![1000028949](https://github.com/user-attachments/assets/d38e1ae8-18e6-4c21-9010-7bb1ad47e52e)
 
 **ABOUT ME!!**
 
 > ` "Pansexual and Transgender!!" `
 *Jester hvy KIN* (ノ^_^)ノ
+
+` attachment issues:p `
 
 
 ` "You are perfect just the way you are my dear..." `
